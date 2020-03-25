@@ -1,5 +1,3 @@
-# 1
-
 ## Description
 
 Your most basic rock beat.
