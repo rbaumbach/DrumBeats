@@ -16,7 +16,7 @@ Another basic rock beat.
 
 #### 1/8 notes
 
-1. TBD...
+1. [Avenged Sevenfold - So Far Away](https://www.youtube.com/watch?v=DKuySrTxIBs)
 
 #### 1/4 notes
 
