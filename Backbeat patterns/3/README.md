@@ -17,6 +17,7 @@ Another basic rock beat.
 #### 1/8 notes
 
 1. [Avenged Sevenfold - So Far Away](https://www.youtube.com/watch?v=DKuySrTxIBs)
+2. [Dokken - Dream Warriors](https://www.youtube.com/watch?v=noLPhZvcBpw)
 
 #### 1/4 notes
 
