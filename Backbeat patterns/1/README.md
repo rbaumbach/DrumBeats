@@ -23,4 +23,4 @@ Your most basic rock beat.
 
 #### 1/4 notes
 
-1. TBD...
+1. [Motley Crue - Looks that Kill](https://www.youtube.com/watch?v=9wPHxQMgdKs)
